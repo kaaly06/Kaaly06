@@ -1,4 +1,4 @@
-# Oolá! eu sou a Kaliany 🌸
+# Oolá! eu sou a Kaliany 
 
 ## Seja Bem-vindo(a)
 
